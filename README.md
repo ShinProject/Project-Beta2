@@ -1,1 +1,1 @@
-# Project-Beta2 File ini adalah modpack buatan ku, bukan berarti semua mod ini buatanku, cuma aku racik atau susun semua mod agar jadi modpack, mod-mod disini adalah hak cipta masing masing para pembuatannya, @ShinProject
+# Project-Beta2.. File ini adalah modpack buatan ku, bukan berarti semua mod ini buatanku, cuma aku racik atau susun semua mod agar jadi modpack, mod-mod disini adalah hak cipta masing masing para pembuatannya, @ShinProject
